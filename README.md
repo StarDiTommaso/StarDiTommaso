@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...downloading git bash preinstalled.
 - 🌱 I’m currently learning ...I have a training session scheduled 5/15/24.
 - 💞️ I’m looking to collaborate on ...making sure i have all the prerequistes completed prior to class.
-- 📫 How to reach me ..614-216-2222 or star.ditommaso@gmail.com
+- 📫 How to reach me ..star.ditommaso@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
